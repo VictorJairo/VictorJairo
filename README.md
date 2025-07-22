@@ -1,4 +1,4 @@
-# 💫 Olá! Me chamo Victor Jairo, tudo bem? ^^
+#  Olá! Me chamo Victor Jairo, tudo bem? ^^
 🌱 Tenho 21 anos e estou atualmente cursando Sistemas para Internet na UNIESP e estou sempre buscando formas de se aperfeiçoar na programação !! <br>
 
 
